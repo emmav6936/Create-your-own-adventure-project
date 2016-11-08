@@ -1,1 +1,1 @@
-#### Paris insists to see you and so your parents send him upstairs and he propuses you to marry him but you scare him away with your "deadly very contagious sickness"
+#### Paris insists to see you and so your parents send him upstairs and he proposes you to marry him but you scare him away with your "deadly very contagious sickness"
