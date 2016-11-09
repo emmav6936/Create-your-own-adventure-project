@@ -2,5 +2,5 @@ _Which path will you take? [Romeo](romeo/romeo.md)? Or [Juliet](Juliet/juliet.md
 
 [Go back to the begining](README.md)  
 
- ![](../juliet.png)  
+ ![](juliet.png)  
 ###### Photo Credits to Benedit Carey
