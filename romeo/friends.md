@@ -1,0 +1,1 @@
+They tell you to get ready because they’ll come pick you up to go a mask [party] (party.md)
